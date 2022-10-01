@@ -1,2 +1,5 @@
 # SocialWokeness
-Hep in the past 70 years
+
+*Hep* for over sixty years
+
+> `µWOKE`
